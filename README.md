@@ -1,1 +1,1 @@
-# Strategik365
+# Strategik 365
